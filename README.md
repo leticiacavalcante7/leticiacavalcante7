@@ -1,5 +1,6 @@
-# 💫 About Me:
-Cursando atualmente Desenvolvimento de sistemas.
+# 💫 About me
+💻 Cursando Desenvolvimento de Sistemas. ⅓
+✨ Coding dreams into reality.
 
 
 ## 🌐 Socials:
