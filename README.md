@@ -1,4 +1,7 @@
-# 💫 About me                                                                             👩🏻‍💻 Cursando Desenvolvimento de Sistemas ⅓
+# 💫 About me
+
+
+👩🏻‍💻 Cursando Desenvolvimento de Sistemas ⅓
 
   ✨ Coding dreams into reality.
 
