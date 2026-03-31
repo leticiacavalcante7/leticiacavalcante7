@@ -3,7 +3,7 @@
 
 👩🏻‍💻 Cursando Desenvolvimento de Sistemas ⅓
 
-  ✨ Coding dreams into reality.
+  
 
 
 ## 🌐 Socials:
