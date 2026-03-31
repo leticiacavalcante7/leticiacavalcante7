@@ -1,7 +1,7 @@
 # 💫 About me
 
 
-👩🏻‍💻 Cursando Desenvolvimento de Sistemas ⅓
+👩🏻‍💻 Cursando Desenvolvimento de Sistemas 3/3
 
   
 
